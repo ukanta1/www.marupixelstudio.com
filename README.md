@@ -1,1 +1,1 @@
-# www.marupixelstudio.com
+# blog.marupixelstudio.com
